@@ -1,0 +1,1 @@
+# class-6-of-2-module
